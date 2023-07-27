@@ -1,2 +1,2 @@
-https://tiagodecarvalhoestrada.github.io/Lista
+https://TiagoDeCarvalhoEstrada.github.io/Lista/
 Enzo K. Tiago C.
